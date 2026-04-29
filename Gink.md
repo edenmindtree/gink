@@ -2402,12 +2402,26 @@ following the lich...
 - There's a strand of rope 'paint' coming down into the hole above us.
 - I climb out the hole, there was a camp here at some point
 
+Clay has taken the 40ft multicolored magic rope.
 
+We start flying,
+- There are trails we see from above
+  - from the Golden Radiance, deep wheel marks like they have heavy machinery
+- but we don't see our ship...
 
+But there is a mysterious large border in the field where our ship should have been
+- Clay hears barking...
+- The ship unfolds out of the rock and Clay the blinkdog greats us!
 
+On the ship:
+- McNiel is impressed with the ship, but Max seems sad as she looks down at her forest
 
+Clay opens the Jazzaville disc!!!!
+- His hologram appears
 
-
+CLoser to Baulurs gate
+- we see a spire and a grand fortress and wall
+- its actually a giant floating fortress with chains holding down a giant earth mote!
 
 
 
