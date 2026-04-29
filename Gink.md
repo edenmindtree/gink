@@ -2399,7 +2399,10 @@ Max says its been 6 months since Triel occurred and we went to the Fey
 
 We are trying to get out of the hole and back to the ship,
 following the lich...
-There's a strand of rope 'paint' coming down into the hole above us.
+- There's a strand of rope 'paint' coming down into the hole above us.
+- I climb out the hole, there was a camp here at some point
+
+
 
 
 
