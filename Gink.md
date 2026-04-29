@@ -2418,6 +2418,8 @@ On the ship:
 
 Clay opens the Jazzaville disc!!!!
 - His hologram appears
+- Jazzaville tells us of his tower, and riches inside
+- and tells Paul he pulled the Flame card, and a demon is hunting
 
 CLoser to Baulurs gate
 - we see a spire and a grand fortress and wall
