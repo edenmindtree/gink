@@ -2425,7 +2425,9 @@ CLoser to Baulurs gate
 - we see a spire and a grand fortress and wall
 - its actually a giant floating fortress with chains holding down a giant earth mote!
 
-
+Backle sets the jinn free after we arrive and land (few miles away from chains)!
+- Backle gets 3 boxes and a choice - he choses the red one
+- a scroll of wish!
 
 
 
