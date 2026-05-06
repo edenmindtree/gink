@@ -2433,7 +2433,47 @@ Backle sets the jinn free after we arrive and land (few miles away from chains)!
 
 
 
+### 05/05/26 - Session 48
+- Gink: Grung Rogue
+- Clay: Human Wizard (Ian)
+- Paul Pot: Halfling Druid (Ryan)
+- Darius: Human Cleric (Dorin / Graham)
+- Backle: Tiefling Paladin (Sam)
 
+Near the cloak wood and the wood of sharp teeth
+- wood of sharp teeth is where Jazz's tower is
+
+So we decide to go to the woods and his tower!
+
+We do see a shimmer and find the tower
+Clay knocks and the door opens
+Clay find Jazz's personal spell book!
+- while holding the book, he has -1 in INT
+- it seems to cloud his mind
+
+We find a recipe for a tattoo (I take this)
+- Advantage on stealth, and incorporeal for 1 min once per day
+- we have to produce ink from flowers around here
+
+I looked into a scrying pool...
+- it stole the memories of my brother Piss Piss
+- I no longer remember him
+
+Clay find a patchwork bag of holding
+- gives it to Darius
+
+There is a tesla coil with a modulator we pulled an amythyst out
+- it seemed to be generating lots of power, like the coil
+- it attracts my sword and pulses out doing damage
+- we leave it for now, its too big (3x3x5 ft rectangle)
+
+We make it to the top floor
+- Clay finds several more blue saphires!
+
+Backle sits on a chair that is so comfortable he can't get up!
+
+We summon Jazz...
+- he says nonchlant "I'll take over your body for world domination..."
 
 
 
